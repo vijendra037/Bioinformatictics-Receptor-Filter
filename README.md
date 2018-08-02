@@ -2,5 +2,5 @@
 
 Hi
 
-I am a siple guy with extraordinary personality.
+I am a simple guy with extraordinary personality.
 
